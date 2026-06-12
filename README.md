@@ -8,4 +8,4 @@
 - dni if you revolve your entire personality around being a proshipper/antishipper. shipping discourse makes me uncomfortable a lot.
 - i like: the battle bricks, **sol's rng**, **lobotomy corporation**, color cruelty/blud obby, enfosi, raigforce 1 & 2, the "tsunami game", adopt me, **pokemon**, depth spelunking & **minus elevation**.
 
-![.....](https://files.catbox.moe/t7qc3u.jpg)
+![.....](https://files.catbox.moe/6e3zwc.gif)
