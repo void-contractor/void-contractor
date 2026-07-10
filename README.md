@@ -1,7 +1,7 @@
-# ![MAY YOUR DEATH BE CURSED.](https://files.catbox.moe/ehh257.gif)
+# [![Tumblr-l-1263584153196881.gif](https://i.postimg.cc/DfHk3JMd/Tumblr-l-1263584153196881.gif)](https://postimg.cc/3WXbgR7d)
 
 - call me **oppression**, **wellcheers**, apocalypse bird, tumored/tb,  or radical
-- STRICTLY it/its pronouns. don't like it? block me. **DO NOT REFER TO ME WITH FEMALE TERMS. ONLY MASCULINE/NEUTRAL. I'M AGENDER & TRANSMASC.**
+- STRICTLY **it/its** pronouns. don't like it? block me. **DO NOT REFER TO ME WITH FEMALE TERMS. ONLY MASCULINE/NEUTRAL. I'M AGENDER & TRANSMASC.**
 - i say slurs sometimes. **ALL** the slurs i say i can reclaim.
 - i'm disabled, both physically and mentally, please be patient with me
 - i make sexual jokes, if you don't like it lmk
