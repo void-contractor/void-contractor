@@ -1,4 +1,6 @@
-# [![Tumblr-l-1263584153196881.gif](https://i.postimg.cc/DfHk3JMd/Tumblr-l-1263584153196881.gif)](https://postimg.cc/3WXbgR7d)
+<img width="540" height="243" alt="17836469974144212979311489875870" src="https://github.com/user-attachments/assets/53573f8a-2cfc-4970-95cb-0205c5802364" />
+
+***
 
 - call me **oppression**, **wellcheers**, apocalypse bird, tumored/tb,  or radical
 - STRICTLY **it/its** pronouns. don't like it? block me. **DO NOT REFER TO ME WITH FEMALE TERMS. ONLY MASCULINE/NEUTRAL. I'M AGENDER & TRANSMASC.**
