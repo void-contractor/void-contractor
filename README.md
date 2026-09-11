@@ -1,7 +1,3 @@
-<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/842461e2-e3d7-4cdc-846a-649efa7232b2" />
-
-
-
 ***
 
 - call me **wellcheers**, **oppression**, **radical**, **army in pink**, apocalypse bird or tumored/tb.
